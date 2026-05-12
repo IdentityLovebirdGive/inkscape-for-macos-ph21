@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Inkscape for macOS brush with Inkscape for macOS premium Brushes: smart objects & custom brushes. Featuring smart objects and custom brushes, it's the best choice
 
 
 
